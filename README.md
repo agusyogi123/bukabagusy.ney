@@ -1,0 +1,2 @@
+# bukabagusy.ney
+Indah diwaktunya
