@@ -1,2 +1,2 @@
-# bukabagusy.ney
-Indah diwaktunya
+# bukabagusy.net
+Belajar segalah sesuatu adalah motivasi hidup
